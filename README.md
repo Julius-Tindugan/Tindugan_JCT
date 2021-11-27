@@ -1,1 +1,0 @@
-# Tindugan_JCT
